@@ -4,7 +4,7 @@ kkkkkkkkk- 👋 Hi, I’m @nasty69konichiva
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 11115585645423k8 xk45 h
-- hello world
+- hello worldet yu
 jty
 <!---
 nasty69konichiva/nasty69konichiva is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
