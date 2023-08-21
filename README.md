@@ -3,7 +3,7 @@ kkkkkkkkk- 👋 Hi, I’m @nasty69konichiva tuy
 - 🌱 I’m currently learning ... wef
 feef
 - 💞️ I’m looking to collaborate on ...t iultui
-- 📫 How to reach me ...rstur tt
+- 📫 How to reach me ...rstur tt ewrwergr
 - 11115585645423k8 xk45 hhfdzhhfdd
 - hello worldet yurtyi
 jty
