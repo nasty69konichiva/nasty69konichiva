@@ -1,6 +1,6 @@
 kkkkkkkkk- 👋 Hi, I’m @nasty69konichiva tuy
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ... wef
+- 🌱 I’m currently learning ... wefj yt
 feef
 - 💞️ I’m looking to collaborate on ...t iultui rthreh
 - 📫 How to reach me ...rstur tt ewrwergr
