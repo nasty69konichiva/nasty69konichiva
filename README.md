@@ -4,7 +4,7 @@ kkkkkkkkk- 👋 Hi, I’m @nasty69konichiva tuy
 feef
 - 💞️ I’m looking to collaborate on ...t iultui rthreh
 - 📫 How to reach me ...rstur tt ewrwergr
-- 11115585645423k8 xk45 hhfdzhhfdd
+- 11115585645423k8 xk45 hhfdzhhfdd kyu
 - hello worldet yurtyi
 jty
 <!---
