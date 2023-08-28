@@ -1,4 +1,4 @@
-kkkkkkkkk- 👋 Hi, I’m @nasty69konichiva tuy
+kkkkkkkkk- 👋 Hi, I’m @nasty69konichiva tuyh wrt
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... wefj yt
 feef
