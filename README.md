@@ -1,7 +1,7 @@
-kkkkkkkkk- 👋 Hi, I’m @nasty69konichiva tuyh wrt
+ kkkkkkkkk- 👋 Hi, I’m @nasty69konichiva tuyh wrt
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... wefj yt
-feef feerf
+feef feerfwj5ws
 - 💞️ I’m looking to collaborate on ...t iultui rthreh
 - 📫 How to reach me ...rstur tt ewrwergr rk76
 - 11115585645423k8 xk45 hhfdzhhfdd kyu
