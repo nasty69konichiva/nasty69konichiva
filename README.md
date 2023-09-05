@@ -5,7 +5,7 @@ feef feerfwj5ws
 - 💞️ I’m looking to collaborate on ...t iultui rthreh 6456tryrt
 - 📫 How to reach me ...rstur tt ewrwergr rk76
 - 11115585645423k8 xk45 hhfdzhhfdd kyu tryk
-- hello worldet yurtyi
+- hello worldet yurtyi twerr
 jty
 <!---
 nasty69konichiva/nasty69konichiva is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
