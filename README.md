@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ... wefj yt
 feef feerfwj5wsee6eyt
-- 💞️ I’m looking to collaborate on ...t iultui rthreh 6456tryrth 4554h45hthg
+- 💞️ I’m looking to collaborate on ...t iultui rthreh 6456tryrth 4554h45hthg jtytyj
 - 📫 How to reach me ...rstur tt ewrwergr rk76
 - 11115585645423k8 xk45 hhfdzhhfdd kyu tryk
 - hello worldet yurtyi twerr
